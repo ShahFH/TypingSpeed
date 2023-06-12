@@ -1,3 +1,3 @@
 # TypingSpeed
 
-coming soon🔜 
+🔜 
